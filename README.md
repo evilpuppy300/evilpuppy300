@@ -3,8 +3,8 @@
 $${\color{#AD0028}evil \space ass \space puppy/bunny/cat \space thing \space that \space bites \space people}$$
 
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ipmuhokratm1uxdrm3j975g6y&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=f2509e&bar_color_cover=false">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=ipmuhokratm1uxdrm3j975g6y&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ipmuhokratm1uxdrm3j975g6y&cover_image=true&theme=novatorem&show_offline=false&background_color=cfff75&interchange=true&profanity=false&bar_color=bd0009&bar_color_cover=false">
   </a>
 </p>
 
