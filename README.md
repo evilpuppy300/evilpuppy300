@@ -18,7 +18,7 @@ $${\color{#FF97C3}evil \space ass \space puppy/bunny/cat \space thing \space tha
 <p align="center">
 <img src="https://i.imgur.com/6lo2nHD.gif" width="20">
 
-$${\color{#ABFFFA}call \space me \space bea \space , \space sunny \space . \space more \space names \space on \space prns.cc}$$
+$${\color{#ABFFFA}call \space me \space bea \space or \space sunny \space . \space more \space names \space on \space prns.cc}$$
 
 <p align="center">
 <img src="https://wilardo.crd.co/assets/images/gallery14/7781f2a7_original.gif?v=d0e71742" width="25">
