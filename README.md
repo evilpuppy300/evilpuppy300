@@ -23,7 +23,7 @@ $${\color{#ABFFFA}call \space me \space bea \space or \space sunny \space . \spa
 <p align="center">
 <img src="https://wilardo.crd.co/assets/images/gallery14/7781f2a7_original.gif?v=d0e71742" width="25">
 
-$${\color{#ABFFFA}it \space / \space ze \space / \space pup \space . \space please \space dont \space use \space anything \space else \space .}$$
+$${\color{#ABFFFA}shy \space / \space it \space / \space ze \space / \space pup \space . \space please \space dont \space use \space anything \space else \space .}$$
 
 <p align="center">
 <img src="https://pixels.crd.co/assets/images/gallery35/8244eeea.gif?v=29416114" width="25">
