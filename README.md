@@ -1,7 +1,7 @@
 $${\color{#FF97C3}evil \space ass \space puppy/bunny/cat \space thing \space that \space bites \space people}$$
 
 <p align="center">
-  <sub>darkfic / darkship / profic / proshipDNIIII  IMSICK OF BEING FOLLOWEDBY  FREAKS!!!!!
+  <sub>$${\color{#FF97C3}PROSHIP \space / \space PROFIC \space DARKSHIP \space DARKFIC \space DNIIII \space STOPFOLLOWING \space MEEEE}$$
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=ipmuhokratm1uxdrm3j975g6y&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ipmuhokratm1uxdrm3j975g6y&cover_image=true&theme=novatorem&show_offline=false&background_color=cfff75&interchange=true&profanity=false&bar_color=FF55CA&bar_color_cover=false">
