@@ -18,12 +18,12 @@ $${\color{#FF97C3}evil \space ass \space puppy/bunny/cat \space thing \space tha
 <p align="center">
 <img src="https://i.imgur.com/6lo2nHD.gif" width="20">
 
-$${\color{#ABFFFA}call \space me \space bea \space or \space sunny \space . \space more \space names \space on \space prns.cc}$$
+$${\color{#ABFFFA}call \space me \space maeve \space .}$$
 
 <p align="center">
 <img src="https://wilardo.crd.co/assets/images/gallery14/7781f2a7_original.gif?v=d0e71742" width="25">
 
-$${\color{#ABFFFA}she \space / \space he \space / \space pup \space \space ๑ \space \space  more \space on \space prns \space . \space cc}$$
+$${\color{#ABFFFA}it \space / \space he \space / \space fae \space \space ๑ \space + \space  neos \space (on \space prns \space . \space cc)}$$
 
 <p align="center">
 <img src="https://pixels.crd.co/assets/images/gallery35/8244eeea.gif?v=29416114" width="25">
