@@ -23,7 +23,7 @@ $${\color{#ABFFFA}call \space me \space maeve \space .}$$
 <p align="center">
 <img src="https://wilardo.crd.co/assets/images/gallery14/7781f2a7_original.gif?v=d0e71742" width="25">
 
-$${\color{#ABFFFA}it \space / \space he \space / \space fae \space \space ๑ \space + \space  neos \space (on \space prns \space . \space cc)}$$
+$${\color{#ABFFFA}he \space / \space they \space + \space  neos \space (on \space prns \space . \space cc)}$$
 
 <p align="center">
 <img src="https://pixels.crd.co/assets/images/gallery35/8244eeea.gif?v=29416114" width="25">
